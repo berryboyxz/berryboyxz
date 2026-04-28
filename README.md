@@ -1,1 +1,1 @@
-![Banner](https://raw.githubusercontent.com/berryboyxz/berryboyxz/main/banner.png)
+![Banner](https://raw.githubusercontent.com/berryboyxz/berryboyxz/main/Snapchat-1172282897.jpg)
