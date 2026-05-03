@@ -1,8 +1,8 @@
 ![Banner1](https://raw.githubusercontent.com/berryboyxz/berryboyxz/main/Snapchat-1628975303.jpg)
 ### 𝓡andom things ::
-⠳ㅤׂ ㅤɪ ʟᴏᴠᴇ sᴘᴇɴᴅɪɴɢ ᴛɪᴍᴇ ᴡɪᴛʜ ᴍʏ ғʀɪᴇɴᴅs ʙᴜᴛ ᴍᴏsᴛ ᴏғ ᴛʜᴇᴍ ᴅᴏᴇsɴ'ᴛ ʜᴀᴠᴇ ᴘᴏɴʏᴛᴏᴡɴ. (ᗒᗣᗕ)՞  ᴍʏ ғᴀᴠᴏʀɪᴛᴇ ғʀᴜɪᴛ ɪs sᴛʀᴀᴡʙᴇʀʀʏ ^^  🍓  ׁ  ɪ ᴀʟsᴏ ʟᴏᴠᴇ ʟᴀᴜɢʜɪɴɢ ᴡɪᴛʜ ᴍʏ ғʀɪᴇɴᴅs, ɪᴛ ᴀʟᴡᴀʏs ᴍᴀᴋᴇs ᴍᴇ sᴍɪʟᴇ ᴡʜᴇɴ ɪ sᴇᴇ ᴛʜᴇᴍ ʜᴀᴘᴘʏ :)  𓈒۫ ғᴇᴇʟ ғʀᴇᴇ ᴛᴏ ᴄᴏᴍᴇ sɪᴛ ᴡɪᴛʜ ᴍᴇ ! ᴊᴜsᴛ ᴅᴏɴ'ᴛ ᴄᴏᴠᴇʀ ᴍᴇ. ᴍʏ ғᴀᴠᴏʀɪᴛᴇ ᴄᴏʟᴏʀ ɪs ʀᴇᴅ ᴀɴᴅ ᴘɪɴᴋ,  (⁎ᴗ͈ ⩊ ᴗ͈⁎)  𖹭  ꒱ᩙ
+⠳ㅤׂ 🩷ㅤi love spending time w my friends but most of my friends doesn't have ponytown or github. my fav fruit is strawberry..ok? i like laughing w my friends or going out with them ‹𝟑 . feel free to come sit with me just please don't cover me . i really loves cuddling.. (⁎ᴗ͈ ⩊ ᴗ͈⁎)  𖹭  ꒱ᩙ
 ![Banner](https://raw.githubusercontent.com/berryboyxz/berryboyxz/main/Snapchat-961788004.jpg)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤ🧁‹⌒ (˵ •̀ ᴗ - ˵ ) ۫  ׅ ㅤ𝓑ᴀᴋᴇᴅ ғʀᴇsʜ ғᴏʀ ʏᴏᴜ  !  ⠳ㅤׂ ㅤ♡
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤ🧁‹⌒ (˵ •̀ ᴗ - ˵ ) ۫  ׅ ㅤBaked fresh for you !  ⠳ㅤׂ ㅤ♡
 ![Banner](https://raw.githubusercontent.com/berryboyxz/berryboyxz/main/Snapchat-34843662.jpg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᴅɴɪ ᴋɪᴅs ᴜɴᴅᴇʀ 10 ʏᴏ ᴀɴᴅ ᴘᴇᴏᴘʟᴇ ᴏᴠᴇʀ 20 ʏᴏ. ʙᴀɪ 🌈
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdni kids under 10- yo or people over 20+ yo. bai >ᜊ<
