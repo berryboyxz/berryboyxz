@@ -5,4 +5,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤ🧁‹⌒ (˵ •̀ ᴗ - ˵ ) ۫  ׅ ㅤBaked fresh for you !  ⠳ㅤׂ ㅤ♡
 ![Banner](https://raw.githubusercontent.com/berryboyxz/berryboyxz/main/Snapchat-34843662.jpg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdni kids under 10- yo or people over 20+ yo. bai >ᜊ<
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ bai >ᜊ<
