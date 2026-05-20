@@ -6,4 +6,4 @@
 
 ![Banner](https://raw.githubusercontent.com/berryboyxz/berryboyxz/main/Snapchat-34843662.jpg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ bai >ᜊ<
+<p align="center">bai >ᜊ<</p>
