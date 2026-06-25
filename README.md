@@ -1,1 +1,1 @@
-[Atabook](https://cupfettii.atabook.org/?page=1)
+[atabookorsumshitlikethat](https://cupfettii.atabook.org/?page=1)
